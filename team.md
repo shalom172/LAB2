@@ -1,1 +1,1 @@
-"Team Lead : Shalom Sichula"
+"Team Leader: Shalom Sichula"
