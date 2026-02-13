@@ -1,1 +1,1 @@
-Team Lead: [Jane Sichula]
+Team Lead: [ Sichula Shalom]
