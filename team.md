@@ -1,1 +1,1 @@
-Team Lead: [Shalom Sichula]
+Team Lead: [ Sichula Shalom]
