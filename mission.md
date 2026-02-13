@@ -1,1 +1,1 @@
-Team lead [Grace Musanga]
+Team lead [Musanga Grace]
