@@ -1,2 +1,2 @@
-team lead [bwalya memory]
+team lead [memory bwalya]
 
