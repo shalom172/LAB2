@@ -1,2 +1,2 @@
-Team lead [Memory Bwalya]
+Team lead [Memory Bwalya Developer 1]
 
